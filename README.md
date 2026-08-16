@@ -7,7 +7,7 @@
     
   DAZ + ANY PRNS <br>
   19 || c+h enc || w2i <br>
-  vienfei geek <br>
+  veinfei geek <br>
     
 $\color{#9B0000}{\textup{I block/hide freely}}$
     
